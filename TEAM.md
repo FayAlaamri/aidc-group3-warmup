@@ -1,2 +1,2 @@
-\- Fay Alaamri, I want to improve my AI and data center skills
-
+- Najd Alwarthan, I want to gain practical experience working with AI and data center technologies.
+- Fay Alaamri, I want to improve my AI and data center skills
